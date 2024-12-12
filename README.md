@@ -1,4 +1,5 @@
 - 👋 Hi, I’m @themadpaki
 - 👀 I’m interested in 🍔
-- 🌱 I’m currently losing my mind windsurfing
+- 🌱 I’m currently losing my mind in the AI development space
 - 📫 You can find me almost anywhere as @themadpaki
+- 🎩 I got my name from the Mad Hatter, and my father is from Pakistan.
